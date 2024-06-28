@@ -8,4 +8,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 **Você pode entrar em contato comigo 📫**
 mariaclara090606@gmail.com
-![](https://images.app.goo.gl/wQ9B9FFHi7pZfNcr7)
+[](![download](https://github.com/mcwlasiuk/mcwlasiuk/assets/173904487/4999b647-b102-43bd-ad0c-13ac428d3b0d)
